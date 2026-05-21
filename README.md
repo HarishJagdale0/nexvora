@@ -1,3 +1,2 @@
 # nexvora
-AI Driven E-Commerce Platform
-cghv 
+AI Driven E-Commerce Platform.
