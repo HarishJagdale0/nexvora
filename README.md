@@ -1,4 +1,4 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-fu jh bdfrwmbg  ntegmwg
+fu jh bdfrwmbg  
