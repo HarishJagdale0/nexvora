@@ -1,4 +1,4 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-dvdfr RWG TNEWOGW FG rgetwf ethile  gklfpmreet 
+dvdfr RWG TNEWOGW FG rgetwf ethile 
