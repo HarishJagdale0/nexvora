@@ -7,4 +7,4 @@ wg
 ;
 etg;,gwr g rg g
 gh
-n,'t,,',f,'g w 
+n,'
