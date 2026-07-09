@@ -3,4 +3,4 @@ AI Driven E-Commerce Platform.
 
 
 kgkgbw t heet  heyhetheg w gethmget e er
-gph5g5rgt hettmeg mtgmte g rhm
+gph5g5rgt hettme
