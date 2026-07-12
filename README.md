@@ -2,6 +2,6 @@
 AI Driven E-Commerce Platform.
 
 
-kpyjhpe fr mgmne ry ethrmetr gry hermr er gfnmerf we letewet
+kpyjhpe fr mgmne ry ethrmetr gry hermr
 wegk[ekraery h etm ryme e
 w,rn,e,grsy 
