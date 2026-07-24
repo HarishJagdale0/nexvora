@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-g.eweet w ry hheh w r
+g.eweet w r
