@@ -5,5 +5,3 @@ obdgb[sdeg  ;fdg,'f,mf'g bd gn e'
 sry
 mrt
 thet
-.f
-n.g f
