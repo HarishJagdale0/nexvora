@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-bfvfg et dfmsfme  bgmgmdfmmf 
+bfvfg et dfmsfme  bg
