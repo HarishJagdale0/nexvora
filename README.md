@@ -3,5 +3,4 @@ AI Driven E-Commerce Platform.
 
 
 zcv cvfuffjv kbilgik kbkgb/bnkvk  lbi
-bigkk lbk;gigk lbivk
-klbkbkj
+bigkk lbk;gigk lbi
