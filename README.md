@@ -6,4 +6,4 @@ AI Driven E-Commerce Platform.
 fvfpletlnrn rm[ne[t,etg
  get n'ae,tgw
 
- E],E]B,N,RB,EGSF t;ld,ber 
+ E],E]B,N,RB
