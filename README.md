@@ -8,4 +8,4 @@ gey'nete'h,rpnmwg eyn 'et,hrhnwwg
 yn
 eth
 gn
-.eth,rh,wrrgrher frh m et,th
+.eth,rh,wrrgrher
