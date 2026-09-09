@@ -8,5 +8,4 @@ h
 rm
 ry
 tjm,
-rjtumt,m'r.yr j tng'nt'.m't h'tu m'fth
-ry
+rjtumt,m'r.yr j tng'nt'.m't h
