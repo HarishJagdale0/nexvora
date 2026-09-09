@@ -10,4 +10,3 @@ ry
 tjm,
 rjtumt,m'r.yr j tng'nt'.m't h'tu m'fth
 ry
-tu.m,tutmymmryr 
