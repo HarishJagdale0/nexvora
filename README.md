@@ -7,7 +7,7 @@ h.eethrh n eth ry,ete
 h
 rm
 ry
-tjm,tr,tu',ry',t r m'r,h
+tjm,
 rjtumt,m'r.yr j tng'nt'.m't h'tu m'fth
 ryj
 .t
