@@ -13,4 +13,4 @@ ryj
 .t
 .m
 r.j
-tu.m,tutmymmryr jt m tu y,tuiy
+tu.m,tutmymmryr 
