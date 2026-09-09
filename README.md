@@ -9,8 +9,5 @@ rm
 ry
 tjm,
 rjtumt,m'r.yr j tng'nt'.m't h'tu m'fth
-ryj
-.t
-.m
-r.j
+ry
 tu.m,tutmymmryr 
