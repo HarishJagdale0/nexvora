@@ -1,5 +1,4 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-jnebe hehehe 
-m
+jnebe heheh
