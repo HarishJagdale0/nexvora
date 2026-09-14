@@ -8,4 +8,4 @@ df vjvjj bkjkjn lnlnl nkll
  /df
  /j
  ,/f.j
- ,ft,hryt;,jerhry ry j'tj,m't,htm rt htju m'ry,
+ ,ft,hryt;,jerhry ry j'tj,m't,htm 
