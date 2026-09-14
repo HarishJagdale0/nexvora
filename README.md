@@ -6,4 +6,4 @@ df vjvjj bkjkjn lnlnl nkll
  n,'f.h
  /j
  ,/f.j
- ,ft,hryt;,jerhry ry 
+ ,ft,hryt
