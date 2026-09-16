@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-hvvj gvjh jhhjhh werty g
+hvvj gvjh jhhjh
