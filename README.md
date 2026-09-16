@@ -3,5 +3,4 @@ AI Driven E-Commerce Platform.
 
 
 hvvj gvjh jhhjhh werty gvj
-hhihjh jhjh  hjjvjrr cffyfyt ftcc
-vhuv
+hhihjh jhjh  hjjvjrr cffyfyt 
