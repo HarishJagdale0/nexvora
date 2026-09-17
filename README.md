@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-dfdldb wegeh;rget geth egweg;lrge het 
+dfdldb wegeh;rget geth egweg
