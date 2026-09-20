@@ -8,5 +8,4 @@ h'
 ry
 he/h
 tm/
-.r h',ry,mry r h'r,l,t'hryr h 'erh'tj;r
-et
+.r h',ry,mry r h'r,l,t'hryr h '
