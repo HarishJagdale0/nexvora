@@ -8,4 +8,3 @@ h'
 ry
 he/h
 tm/
-.r h',ry,mry r 
