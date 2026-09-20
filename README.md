@@ -6,5 +6,4 @@ rg','dret  nfh n'ry,h'r
 thjt'mhr h 'r'ry
 h'
 ry
-he/h
-tm/
+he
