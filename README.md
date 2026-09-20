@@ -10,5 +10,4 @@ he/h
 tm/
 .r h',ry,mry r h'r,l,t'hryr h 'erh'tj;r
 eth';tj,m'.   erh;'tryh    e'rh't't  'e'htjet
-etht'm
-e  'e
+etht
