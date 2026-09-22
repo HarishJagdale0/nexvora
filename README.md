@@ -5,4 +5,4 @@ xvm gdbs
 
 dn'dnmn  mdmnsm; sg hlnffd
 fh,mf;xfgs gs gl fhlndfl ddg
-d ln lm;fb;mffb   ;ldf;fs
+d ln lm;f
