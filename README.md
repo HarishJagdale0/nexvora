@@ -7,4 +7,3 @@ r,'lt,mg e thh ;tet
 'ry,r'y,'et,h;ry eh eth
 ryj
 er
-j',et',htu',jrt  r tryjlryh'e'     rh;l;lrth'ry,hry
