@@ -4,4 +4,4 @@ AI Driven E-Commerce Platform.
 jioioooo
 poiojiojo
 okpio
-pojon jijjiu nlooniuuijoj ojo 
+pojon jijjiu nlooniuui
