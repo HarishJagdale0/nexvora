@@ -3,5 +3,4 @@ AI Driven E-Commerce Platform.
 
 jioioooo
 poiojiojo
-okpio
-pojon
+okp
