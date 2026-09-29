@@ -8,5 +8,4 @@ ddnfnfh     fh;,ndgbdb gs b dndbgbnrndf et eh
 etheheth   f ngdgndd  fhngbdg  dgnfhnddn
 dff,'n,d,d   d;fhnd,e eth ethetheth ethmhmryhry;rte e thry;r
 
-,',,ryryj   shmryjmtmhth  h jy,jry, t hrmthrt hj  hryj;rtht 
-hrjthr
+,',,ryryj   shmryjmtmhth  h jy,jry, t hrmthrt hj 
