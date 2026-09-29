@@ -3,4 +3,4 @@ AI Driven E-Commerce Platform.
 
 
 
-dvdgd ddb dgn dmbsr 
+dvdgd ddb 
