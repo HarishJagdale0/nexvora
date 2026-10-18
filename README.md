@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-faw ey rjaw te f juhrhr;lrer
+faw ey rjaw te 
