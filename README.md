@@ -7,4 +7,4 @@ t'ryj'dg'se r rg t d;fgmrsghdg
 s
 t
 jltylhdt,h',r   grmm;fg;h;dfmgdfg  dth;dfgdsfdrdgs  g;etryh
-'dgy;r;hmsdmd th ryjmsetmeh r w4tw4rtt w
+'dgy;r;hmsdmd th ryjmsetmeh 
