@@ -1,4 +1,4 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-jsjsjsb zieber soosbe vksd
+jsjsjsb zieber soosbe
