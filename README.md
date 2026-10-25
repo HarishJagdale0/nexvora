@@ -1,5 +1,5 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-jsjsjsb z bskkdfn Bieber soosbe vksjdbr zjd
+jsjsjsb zieber soosbe vksjdbr zjd
 hshsjsjj
