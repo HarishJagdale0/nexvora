@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-jsieke sisjejje jsijsbsje  js
+jsieke sisjejje jsi
