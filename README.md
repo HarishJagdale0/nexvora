@@ -3,5 +3,4 @@ AI Driven E-Commerce Platform.
 
 
 
-aft wefrgrwffere gbfd ggma
-rghtropergt
+aft wefrgrwffere gbfd gg
