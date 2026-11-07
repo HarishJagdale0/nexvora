@@ -2,6 +2,6 @@
 AI Driven E-Commerce Platform.
 
 
-kskdke jsjdb jsjsbe  sjkejs
+kskdke jsjdb jsjsbe  
 
 
