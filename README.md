@@ -1,5 +1,4 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-skies ksks kskene keke e sis is is jsjs
-nsns
+skies ksks kskene keke e sis is 
