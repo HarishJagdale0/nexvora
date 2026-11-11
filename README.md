@@ -2,5 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-irjeie jsjsb sususbs sj
-js
+irjeie jsjsb susu
