@@ -1,4 +1,4 @@
 # nexvora
 AI Driven E-Commerce Platform.
 
-gyuu gyuyy d ek
+gyuu gyu
