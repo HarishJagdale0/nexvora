@@ -2,4 +2,4 @@
 AI Driven E-Commerce Platform.
 
 
-gyuubgib hinggn buijnvfth huuu
+gyuubgib hinggn buij
