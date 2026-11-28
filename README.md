@@ -3,7 +3,7 @@ AI Driven E-Commerce Platform.
 
 
 mskske jsjs sbeb jsjs bsjjsbs
-bsnsjsjeje sjjdndbe jsjsjeb su2h she
+bsnsjsjeje sjjdndshe
 
 shehdjejeje ehejejeje ejjejejehebbe
 
